@@ -1,4 +1,0 @@
-# Informações do GooDDog
-
-
-
